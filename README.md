@@ -1,3 +1,6 @@
+Rockets are cool :rocket: !!!
+
+
 |Prop   | [CA](http://www.cadem.org/vote/2016-ballot-initiatives)/[SF](http://www.sfdemocrats.org/endorsements) Dems  | [BayArea GOP](http://www.bayareagop.com/ca-ballot-measures/)  | [SF Chronicle](http://projects.sfchronicle.com/2016/voter-guide/) | More info  |
 |:--|:-:|:-:|:-:|:-:|
 | 51 - Education Bonds| :white_check_mark:  | :white_check_mark:  | :white_check_mark:  | [KQED more info](http://elections.kqed.org/measure/2014/info/proposition-51)  |
