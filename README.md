@@ -1,5 +1,4 @@
-Rockets are cool :rocket::rocket::rocket::rocket::rocket::rocket::rocket: !!!
-
+Zaps are cooler 
 
 |Prop   | [CA](http://www.cadem.org/vote/2016-ballot-initiatives)/[SF](http://www.sfdemocrats.org/endorsements) Dems  | [BayArea GOP](http://www.bayareagop.com/ca-ballot-measures/)  | [SF Chronicle](http://projects.sfchronicle.com/2016/voter-guide/) | More info  |
 |:--|:-:|:-:|:-:|:-:|
